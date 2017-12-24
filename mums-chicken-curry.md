@@ -14,4 +14,4 @@
 * After a few minutes add a spoon or so of curry powder.
 * After a few more minutes add can of chopped tomato and a bit of water.
 * Wait for chicken to be cooked and then simmer until curry condenses and is tasty!
-* Make rice, salad and / or potato & spinach dish!
+* Make rice, salad and / or [potato & spinach](/spinach-and-potato.md) dish!
