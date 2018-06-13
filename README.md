@@ -18,6 +18,7 @@ https://www.bbcgoodfood.com/recipes/2040646/chorizo-potato-and-cheese-omelette
 https://www.jamieoliver.com/recipes/chicken-recipes/chicken-fajitas-with-homemade-guacamole-and-salsa/
 http://ohsnapletseat.com/2013/05/20/easy-coconut-milk-curry-chicken/ - add pea snaps!
 </br> Good for a summer BBQ https://www.bbcgoodfood.com/recipes/10375/chicken-tikka-skewers
+https://addapinch.com/bbq-chicken-legs-recipe/
 
 
 #### Fish
