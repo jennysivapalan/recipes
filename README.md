@@ -30,6 +30,8 @@ http://undergroundcookeryschool.com/fishcakes-tartar-sauce/ - work on the mash
 #### Veg
 https://www.jamieoliver.com/recipes/vegetables-recipes/sweet-potato-chickpea-amp-spinach-curry/ - one from Meags (add 1 tbsp tumeric and 1 tbsp cumin)
 
+https://www.vegansociety.com/resources/recipes/special-occasions/easy-nut-roast
+
 #### Spring dishes
 
 http://www.deliciousmagazine.co.uk/recipes/asparagus-and-ricotta-lasagne/
